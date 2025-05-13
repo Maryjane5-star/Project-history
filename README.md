@@ -1,2 +1,3 @@
-# Project-history
-I work so hard to be the Best 
+Hi 👋, I'm Maryjane Chidimma Ejezie
+A Passionate Data Analyst
+
